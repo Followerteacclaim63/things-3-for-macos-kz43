@@ -1,4 +1,4 @@
-#  
+#  premium Script for Things 3 for macOS - custom shortcuts and multi-device sync is the best Things 3 for macOS script, featuring custom shortcuts and multi-device sync. Safe,
 
 
 
